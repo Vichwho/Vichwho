@@ -2,7 +2,7 @@
 
 🎯 Tenho 17 anos e sou de São Paulo - SP  
 💻 Apaixonado por tecnologia desde sempre  
-📚 Atualmente no 2º ano do Ensino Médio com técnico em Desenvolvimento de Sistemas  
+📚 Atualmente no 3º ano do Ensino Médio com técnico em Desenvolvimento de Sistemas  
 🎨 Trabalho com Web Design e documento meus projetos nas minhas plataformas digitais  
 
 ---
